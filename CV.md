@@ -36,4 +36,29 @@ Work Experience
 
   Clerical Assistant (2010-2014)
   
+  
+Volunteer Experience
+--------------------
+
+* W.S.P.C.A (Wicklow, Ireland)
+
+  Dog Walker
+  
+* I*ESN (Tilburg, The Netherlands)
+ 
+ Mentor for exchange and international students
+  
+* Internation Beer Cantus (Tilburg, The Netherlands)
+  
+  Committee Member 
+  
+  
+Contact Details
+---------------
+
+Email: C.J.Roche@tilburguniversity.edu
+
+  
+
+  
    
