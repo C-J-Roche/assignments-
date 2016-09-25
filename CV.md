@@ -28,5 +28,12 @@ Work Experience
  Laboratory Assistant (Summer 2015)
  
  
+* Dunnes Stores 
+
+  Cashier(2014)
+  
+* Wicklow Post Office 
+
+  Clerical Assistant (2010-2014)
   
    
